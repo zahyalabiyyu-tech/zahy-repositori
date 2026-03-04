@@ -1,0 +1,2 @@
+# zahy-repositori
+technopreneurship 
